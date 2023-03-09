@@ -6,9 +6,9 @@
 ### Sosial Media
 
 Mari berteman dengan saya di
-[Instagram](https://instagram.com/untoro.bagus?igshid=YmMyMTA2M2Y=)
 
-[LinkedIn](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
+[Instagram](https://instagram.com/untoro.bagus?igshid=YmMyMTA2M2Y=)? Let me know! :)
+
 
 ![](https://komarev.com/ghpvc/?username=Schweinepriester)
 
