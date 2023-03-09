@@ -1,7 +1,16 @@
-### Hi there 👋
+### Hello there!
+
+![](/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
+[Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
+
+### Achievements
+
+Do you have or know an Achievement not listed [here](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
+
+![](https://komarev.com/ghpvc/?username=Schweinepriester)
 
 <!--
-**bagusuntoro/bagusuntoro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**Schweinepriester/Schweinepriester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
