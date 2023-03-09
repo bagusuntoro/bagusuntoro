@@ -3,9 +3,11 @@
 ![](/MeagerHardtofindAlbertosaurus-size_restricted.gif)  
 [Source](https://gfycat.com/meagerhardtofindalbertosaurus-hello-there-star-wars-prequelmemes)
 
-### Achievements
+### Sosial Media
 
-Do you have or know an Achievement not listed [here](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
+Mari berteman dengan saya di
+[Instagram](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
+[LinkedIn](https://github.com/Schweinepriester/github-profile-achievements#achievements)? Let me know! :)
 
 ![](https://komarev.com/ghpvc/?username=Schweinepriester)
 
