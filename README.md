@@ -7,10 +7,11 @@
 
 Mari berteman dengan saya di
 
-[Instagram](https://instagram.com/untoro.bagus?igshid=YmMyMTA2M2Y=)? Let me know! :)
+- [Instagram](https://instagram.com/untoro.bagus?igshid=YmMyMTA2M2Y=)
+
+- [LinkedIn](https://www.linkedin.com/in/bagus-untoro-aa113a226/)
 
 
-![](https://komarev.com/ghpvc/?username=Schweinepriester)
 
 <!--
 **Schweinepriester/Schweinepriester** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
